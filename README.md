@@ -2,4 +2,4 @@
 - 👀 I’m interested in bikes and cars.
 - 🌱 I’m currently learning for exams :( 
 - 💞️ I’m looking to collaborate on nothing right now.
-- 📫 How to reach me via discord.
+- 📫 How to reach me via: discord.
